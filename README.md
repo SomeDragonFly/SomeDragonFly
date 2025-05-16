@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently a student at Thammasat Secondary School taking the Web Design and Development Class | ET32203.
+I am currently a student at Thammasat Secondary School :)
 
 
 ## 🌐 Socials:
